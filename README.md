@@ -1,0 +1,3 @@
+- Hola soy Tashzz un pequeño dev de juegos :D
+- No hay mucho que decir sobre mi... Mi comunidad de discord
+- https://discord.gg/nnmyaNGTgR
